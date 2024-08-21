@@ -1,0 +1,2 @@
+Hi, my name is Angelo Muller and I am an Cyber Security student based in Melbourne, Australia. As an aspiring Cyber Security professional and active learner, I thought it'll be interesting to display here my journey as I explore and sharpen my knowledge of day-to-day tools and methods as I go.
+Please feel free to engage and reach out with any content you find in this page, I'd highly appreciate your input and point of view!
